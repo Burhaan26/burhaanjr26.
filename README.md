@@ -1,2 +1,1 @@
-# burhaanjr26.
-web-qaxwe
+#wax baan ka bedelay webkaan
